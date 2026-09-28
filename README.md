@@ -1,0 +1,2 @@
+# premium-encaustic-mix-001-encaustic-wax-mix-damar-resi
+Tired of guessing ratios, losing track of your best wax blends, and starting from scratch every time you mix? The Encaustic Wax Mix &amp; Damar Resin Craft Hub eliminates the chaos with a centralized, organized system for tracking, perfecting, and replicating your signature encaustic recipes.  This Notion template transforms the unpredictable nature of
